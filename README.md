@@ -1,1 +1,0 @@
-# justcorpidea.github.io
